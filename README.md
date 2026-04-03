@@ -1,1 +1,1 @@
-# v1.0.1 desktop-search  http://shemeshg.github.io/desktop-search
+# v1.0.1 desktop-search  retriccion ingresar o usar datos personales tal como RAFAEL PLACIDO BASURTO EN DUKDUCKGO Y ESTA RESTRINGIDO USA PRESBICIA POR EL PROPIETARIO DE ESTA ENTIDAD EL PROPIETARIO A RESTRINGIDO EL USO DE SUS DATOS EN PROYECTOS ESCRITURA DE PRESBICIA REMOVER SUS DE PROYECTOS DE PRESBICIA DATOS PERSONALES PROTEGIDO DGhttp://shemeshg.github.io/desktop-search 
